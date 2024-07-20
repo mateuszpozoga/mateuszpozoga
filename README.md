@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mateuszpozoga
-- 👀 I’m interested in aby ktoś sprawdził moj telefon przez ostatnie 4 lata bo kest usuwane wiele danych z mojego telefonu ktadziez danych etc
+- 👀 I’m interested in aby ktoś sprawdził moj telefon przez ostatnie 4 lata bo jest usuwane wiele danych z mojego telefonu kradziez danych etc
 - 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
